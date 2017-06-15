@@ -1,2 +1,2 @@
 # hello-world
-This isn't fun yet.
+Fantastic at brooding. Ok at taking pictures and making music.
